@@ -1,0 +1,1 @@
+CAS tarozini kompyuterga ulash
